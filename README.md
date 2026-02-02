@@ -5,5 +5,3 @@ I'm nanu, my pronouns are she/her.
 I'm AFK sometimes, but i'll put the busy mark and will check the game often.
 
 have a sweet day★
-
-![ribbon2](https://img.sanishtech.com/u/6c914d8743da070bd429cf439ea20f22.png)
